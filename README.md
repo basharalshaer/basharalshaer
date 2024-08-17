@@ -1,5 +1,5 @@
 <h1 align="center">
-  <img src="[https://ik.imagekit.io/dfw3q47dv0/the_power_of_dark_side_fPLL-vX6C.gif](http://s.myniceprofile.com/myspacepic/1688/168879.gif)" />
+  <img src="https://ik.imagekit.io/dfw3q47dv0/the_power_of_dark_side_fPLL-vX6C.gif](http://s.myniceprofile.com/myspacepic/1688/168879.gif" />
 </h1>
 
 ## 👋 Hello, visitor! May The Force be with you!
